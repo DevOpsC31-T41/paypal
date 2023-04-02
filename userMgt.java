@@ -1,4 +1,7 @@
-# I removed ramee :p
+# This is the Chang Gang
+# CG4L 
+Mr. Kebun
+Ramee
 Randy Bullet
 Bobby Brown
-Mr. Kebun
+Big D
